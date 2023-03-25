@@ -1,1 +1,1 @@
-# capstone-project-ishita-
+# class-16-ishita-
